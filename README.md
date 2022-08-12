@@ -1,1 +1,0 @@
-# aldrinaratia.github.io
